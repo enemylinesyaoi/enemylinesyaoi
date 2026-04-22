@@ -1,4 +1,4 @@
-## Hi there 👋
+## okay hi i redid my readme cause my account name was censored on ponytown
 
 <!--
 **enemylinesyaoi/enemylinesyaoi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
